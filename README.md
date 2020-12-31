@@ -1,2 +1,2 @@
 # Animations
-here you'll find some most amazing animation works
+here you'll find some of the most amazing animation work
